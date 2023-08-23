@@ -7,3 +7,6 @@ Pour en savoir plus :
 https://thinkbeta-v0.ig.pulse.is
 
 En cas de question ou suggestion n'hésiter pas à me contacter via le lien ci dessus.
+
+![Photo 3](https://github.com/Yohan45/thinkbeta/assets/121348360/3bfe1a18-1294-46fe-85f2-c8afcdd6e356)
+![Photo 4](https://github.com/Yohan45/thinkbeta/assets/121348360/aee32f10-1f8c-4802-aa61-80bdc29f32a6)
